@@ -50,7 +50,11 @@ Português nativo, inglês avançado e espanhol com competência profissional li
 
 ## Como penso
 
-Sou generalista por consequência e, nos últimos anos, por escolha: passei por atendimento, pesquisa, experiência do cliente, gestão de projetos e gente e gestão, sempre buscando posições que também me desenvolvam como gerente e dono de produto. Não sou engenheiro, e contribuo pelo lado de produto: descoberta com clientes, priorização, adoção e indicadores.
+Gosto de entrar onde o problema ainda está mal definido. Começo ouvindo quem vive a situação, sejam clientes ou colaboradores, e só depois desenho a solução. Para mim, um produto só existe quando alguém o usa, então trato adoção e indicadores como parte do trabalho desde o início, e não como uma etapa final.
+
+O atendimento e a formação em design de produto me deixaram perto de quem usa. Com engenharia e dados, aprendo fazendo junto. Passei por várias frentes da empresa e, hoje, escolho cada posição pelo que ela me ensina sobre produto.
+
+Prefiro dizer com precisão o que foi entregue e o que ainda está em estruturação.
 
 ## Contato
 
